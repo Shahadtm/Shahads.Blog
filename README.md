@@ -20,5 +20,7 @@ Citation:
 I only used code from sourced mentioned in the course. 
 I cited as best I can. If there is any plagiarism, it wasn't intentional and I'll happily re-do the project. 
 
+I had fun creating fake blog posts titles and designing the pictures. I Hoppe you enjoy it too. 
+
 
 for surprise---------> click on any link! 
